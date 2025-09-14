@@ -1,4 +1,4 @@
-Hi, I’m @TheJose03,(expert protecting systems) = experto protegiendo sistema.
+Hi, I’m @TheJose03,(expert protecting systems) = experto protegiendo sistemas.
 
 👀 Interests: Passionate about cybersecurity, the English language, and artificial intelligence—especially in leveraging AI APIs for innovative solutions.
 
